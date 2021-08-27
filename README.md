@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @limy135302065
+- 👀 I’m interested in basketball and pingpang 
+- 🌱 I’m currently learning spring
+- 💞️ I’m looking to collaborate on learning technology
+- 📫 How to reach me 1353020654@qq.com
